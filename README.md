@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Wekuz
-- 👀 I’m interested in programming💻 and basketball⛹️‍♂️
+- 👀 I’m interested in programming 💻 and video games 🎮
 - 🌱 I’m currently learning programming by myself
 - 📫 How to reach me: wekuz@duck.com
 
